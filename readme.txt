@@ -1,5 +1,5 @@
 flowchart pola satu :
-https://drive.google.com/file/d/1KtM4RcHSbCXZPNRAEbTFzmj6b1ZLNj7g/view?usp=sharing
+https://drive.google.com/file/d/1JH9p5lDpOECO3hYNX3uQGiW_mbbWaicO/view?usp=sharing
 flowchart nomor dua sih kalo yang ini :
 https://drive.google.com/file/d/1BSqJsPVof1_CNbqiFtQcW44skxacRPzt/view?usp=sharing
 sumpah yang ini flowchart nomor tiga gessss:
