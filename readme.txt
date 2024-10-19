@@ -1,4 +1,4 @@
-flowchart nomor satu nich :
+flowchart pola satu :
 https://drive.google.com/file/d/1KtM4RcHSbCXZPNRAEbTFzmj6b1ZLNj7g/view?usp=sharing
 flowchart nomor dua sih kalo yang ini :
 https://drive.google.com/file/d/1BSqJsPVof1_CNbqiFtQcW44skxacRPzt/view?usp=sharing
